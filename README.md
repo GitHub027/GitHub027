@@ -1,0 +1,4 @@
+klasky csupo
+<!---
+sussy baka
+--->
